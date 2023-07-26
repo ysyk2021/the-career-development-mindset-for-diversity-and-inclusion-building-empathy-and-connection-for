@@ -1,4 +1,4 @@
-Chapter 4: Networking and Relationship Building
+Networking and Relationship Building
 ===============================================
 
 Networking and relationship building are critical components of career development. In this chapter, we will explore techniques for building professional relationships, strategies for networking effectively, and best practices for nurturing positive relationships in the workplace.

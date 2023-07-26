@@ -1,4 +1,4 @@
-Chapter 3: Identifying and Leveraging Personal Strengths
+Identifying and Leveraging Personal Strengths
 ========================================================
 
 Identifying personal strengths and talents is essential for career development. In this chapter, we will explore some techniques for identifying personal strengths and talents, strategies for leveraging strengths for professional growth, and best practices for developing personal strengths in the workplace.

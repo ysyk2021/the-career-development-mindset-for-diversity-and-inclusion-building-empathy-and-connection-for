@@ -1,4 +1,4 @@
-Chapter 7: Overcoming Obstacles to Career Development
+Overcoming Obstacles to Career Development
 =====================================================
 
 Overcoming obstacles is an essential component of career development. In this chapter, we will explore common obstacles to career development, techniques for overcoming barriers to success, and best practices for navigating obstacles and challenges in the workplace.

@@ -1,4 +1,4 @@
-Chapter 1: Introduction
+Introduction
 =======================
 
 Career development is a lifelong journey that requires a commitment to personal growth, learning, and development. In today's rapidly changing business environment, fostering diversity, inclusion, empathy, and connection are essential components of career success. In this chapter, we will explore the importance of diversity, inclusion, and empathy in career development and provide an overview of the book.

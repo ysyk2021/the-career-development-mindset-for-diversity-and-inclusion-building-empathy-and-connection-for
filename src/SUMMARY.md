@@ -2,7 +2,6 @@
 
 - [Introduction](README.md)
   - [The Importance of Diversity, Inclusion, and Empathy in Career Development](chapter-1-1.md)
-  - [Overview of the Book](chapter-1-2.md)
 - [Understanding Diversity and Inclusion in the Workplace](chapter-2.md)
   - [Defining Diversity and Inclusion in the Workplace](chapter-2-1.md)
   - [The Benefits of Diversity and Inclusion for Career Development](chapter-2-2.md)
