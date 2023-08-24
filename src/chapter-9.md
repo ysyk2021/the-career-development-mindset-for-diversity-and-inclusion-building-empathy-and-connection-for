@@ -1,5 +1,3 @@
-Measuring the Success of Career Development Efforts
-===================================================
 
 Career development is an ongoing process, and it's important to measure the effectiveness of your efforts in order to achieve your professional goals. In this chapter, we will explore strategies for measuring the success of career development activities and using feedback to continuously improve.
 

@@ -1,5 +1,3 @@
-Best Practices for Nurturing Positive Relationships in the Workplace
-==========================================================================================================
 
 Networking and relationship building are essential components of career development, providing opportunities to build connections, gain new insights, and advance professionally. In this chapter, we will explore best practices for nurturing positive relationships in the workplace.
 

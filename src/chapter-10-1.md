@@ -1,5 +1,3 @@
-Recap of Key Takeaways
-==============================================
 
 Throughout this book, we have explored the importance of cultivating a career development mindset that prioritizes diversity, inclusion, and empathy. In this final chapter, we will recap some of the key takeaways from this book.
 

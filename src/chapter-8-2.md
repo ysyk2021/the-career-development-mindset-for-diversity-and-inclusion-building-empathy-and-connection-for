@@ -1,5 +1,3 @@
-Strategies for Networking Effectively
-===========================================================================
 
 Networking and relationship building are essential components of career development, providing opportunities to connect with others in your field, build new connections, and gain valuable insights and support. In this chapter, we will explore strategies for networking effectively.
 

@@ -1,5 +1,3 @@
-Encouragement to Adopt a Diversity, Inclusion, and Empathy Mindset for Successful Career Development
-============================================================================================================================
 
 In today's diverse and rapidly changing business environment, adopting a diversity, inclusion, and empathy mindset is essential for successful career development. Throughout this book, we have explored the importance of cultivating a growth mindset, identifying personal strengths, developing empathy and connection, and overcoming obstacles to success. By embracing these principles and strategies, individuals can position themselves for long-term success and achieve their career development goals.
 

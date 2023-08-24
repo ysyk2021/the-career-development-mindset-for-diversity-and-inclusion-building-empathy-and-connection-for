@@ -1,4 +1,4 @@
-# Introduction
+
 
 Welcome to "The Career Development Mindset for Diversity and Inclusion: Building Empathy and Connection for Professional Growth." In this book, we will explore the importance of diversity and inclusion in the workplace and how it positively impacts our professional development.
 

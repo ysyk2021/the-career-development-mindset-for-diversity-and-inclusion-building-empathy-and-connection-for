@@ -1,5 +1,3 @@
-Developing Empathy and Connection
-============================================
 
 Developing empathy and connection is essential for career development, particularly when it comes to diversity and inclusion. In this chapter, we will explore some of the strategies and techniques for developing empathy and connection with colleagues and customers, as well as best practices for nurturing empathy and connection in the workplace.
 

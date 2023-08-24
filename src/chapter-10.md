@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 Recap of Key Takeaways
 ----------------------
@@ -19,5 +17,4 @@ Encouragement to Adopt a Diversity, Inclusion, and Empathy Mindset for Successfu
 As you move forward in your career, I encourage you to adopt a diversity, inclusion, and empathy mindset. This means being intentional about seeking out diverse perspectives, challenging your own biases and assumptions, and building connections with people who may come from different backgrounds than your own.
 
 By doing so, you will not only enhance your own professional growth but also contribute to creating a more inclusive and equitable workplace. Remember, building empathy and connection takes time and effort, but the rewards are well worth it. So let's commit to working together towards a more diverse, inclusive, and empathetic future.
-
 

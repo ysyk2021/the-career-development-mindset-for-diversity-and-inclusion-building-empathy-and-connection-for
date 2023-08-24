@@ -1,5 +1,3 @@
-Understanding Diversity and Inclusion in the Workplace
-=================================================================
 
 Diversity and inclusion are essential components of a healthy and thriving workplace. In this chapter, we will explore the definitions of diversity and inclusion, the benefits they bring to career development, and the key elements of successful diversity and inclusion in career development.
 

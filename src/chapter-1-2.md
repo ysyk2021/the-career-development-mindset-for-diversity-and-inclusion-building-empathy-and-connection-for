@@ -1,5 +1,3 @@
-Overview of the Book
-==============================================
 
 The Career Development Mindset for Diversity and Inclusion: Building Empathy and Connection for Professional Growth is a comprehensive guide to career development in today's diverse and rapidly changing business environment. This book explores the importance of diversity, inclusion, empathy, and connection in career development and provides strategies for cultivating these essential skills.
 

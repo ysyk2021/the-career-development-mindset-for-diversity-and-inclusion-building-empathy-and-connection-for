@@ -1,4 +1,3 @@
-# Using Feedback to Continuously Improve Career Development
 
 In this chapter, we will explore the significance of feedback in the continuous improvement of career development initiatives. By actively seeking and incorporating feedback from employees, organizations can enhance the effectiveness of their programs, address gaps, and create inclusive environments that foster professional growth.
 

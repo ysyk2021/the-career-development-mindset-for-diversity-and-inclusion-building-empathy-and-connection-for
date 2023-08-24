@@ -1,4 +1,3 @@
-# Gathering Data on Career Development Activities
 
 In this chapter, we will explore the importance of gathering data on career development activities in order to assess their effectiveness and make informed decisions. By collecting relevant data, organizations can gain insights into the impact of their diversity and inclusion-focused career development initiatives, identify areas for improvement, and promote professional growth among employees.
 

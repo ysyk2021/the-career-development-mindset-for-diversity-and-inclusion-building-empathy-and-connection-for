@@ -1,4 +1,3 @@
-# Choosing Metrics to Evaluate Career Development Effectiveness
 
 In this chapter, we will explore the importance of choosing appropriate metrics to evaluate the effectiveness of career development programs and initiatives. Effective evaluation allows organizations to assess the impact of their efforts, make data-driven decisions, and continuously improve career development strategies. By selecting relevant and meaningful metrics, organizations can gain valuable insights into the success and areas of improvement in their diversity and inclusion-focused career development initiatives.
 

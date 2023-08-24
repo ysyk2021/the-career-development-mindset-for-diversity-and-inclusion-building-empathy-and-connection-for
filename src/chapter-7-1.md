@@ -1,4 +1,3 @@
-# Understanding the Role of Mentors and Sponsors in Career Development
 
 In this chapter, we will explore the significance of mentors and sponsors in career development, particularly in the context of promoting diversity and inclusion. Mentors and sponsors play crucial roles in supporting individuals' professional growth, offering guidance, advocating for opportunities, and facilitating connection and empathy.
 
