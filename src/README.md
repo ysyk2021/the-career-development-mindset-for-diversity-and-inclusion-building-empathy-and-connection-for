@@ -15,3 +15,7 @@ In this book, we will dive deep into various aspects of diversity and inclusion 
 Join us on this journey to unlock the power of diversity and inclusion for your career development. Let's build a brighter future together!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
