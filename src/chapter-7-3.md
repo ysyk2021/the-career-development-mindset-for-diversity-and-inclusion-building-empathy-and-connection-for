@@ -1,5 +1,4 @@
-Chapter: Best Practices for Building Strong Mentoring and Sponsorship Connections
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the best practices for building strong mentoring and sponsorship connections as part of the career development mindset for diversity and inclusion. Mentoring and sponsorship relationships play a crucial role in professional growth, especially for individuals from diverse backgrounds. By fostering empathy and connection, these relationships can help create an inclusive environment that supports career advancement and personal development.
 

@@ -1,5 +1,4 @@
-Chapter: Best Practices for Nurturing Positive Relationships in the Workplace
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the best practices for nurturing positive relationships in the workplace as part of the career development mindset for diversity and inclusion. Building positive relationships is crucial for creating an inclusive and supportive environment that fosters professional growth and collaboration.
 
